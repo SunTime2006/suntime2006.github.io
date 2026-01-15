@@ -1,2 +1,2 @@
-# [redes-sociales-suntime.github.io](https://suntime2006.github.io/redes-sociales-suntime.github.io/)
+# [suntime2006.github.io](https://suntime2006.github.io/)
 Les presento mis redes sociales ;)
